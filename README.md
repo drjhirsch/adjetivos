@@ -8,10 +8,10 @@ Diese <a href="https://www.enforex.com/spanisch/sprache/adjektive-adjetivos.html
 Ejercicios para practicar el uso de los adjetivos en español.
 <br>
 <a href="https://aprenderespanol.org/ejercicios/gramatica/adjetivos/concordancia-1">Ejercicio 1</a>: Nota: el puente = die Brücke <br>
-<a href="https://www.spanish.cl/Grammar/Games/Adjetivos.htm">Ejercicio 2</a> <br> Auch wenn du nicht alle Wörter verstehst, kannst du durch Artikel ableiten, welches die einzige Form ist, die passt.
-<a href="https://www.languagesonline.org.uk/Spanish/Spec_2011/Dieta/4.htm">Ejercicio 3</a> <br> Genau das Gleiche gilt auch für diese Übung.
+<a href="https://www.spanish.cl/Grammar/Games/Adjetivos.htm">Ejercicio 2</a>  Auch wenn du nicht alle Wörter verstehst, kannst du durch Artikel ableiten, welches die einzige Form ist, die passt.<br>
+<a href="https://www.languagesonline.org.uk/Spanish/Spec_2011/Dieta/4.htm">Ejercicio 3</a>  Genau das Gleiche gilt auch für diese Übung.
 <br>
 <a href="https://h5p.org/node/507011">Ejercicio 4</a> <br> 
 
-
+<br>
 Fuehlst du dich sicher? Dann mache jetzt den Test bei mir vorne!
