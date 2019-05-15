@@ -1,6 +1,6 @@
 # Adjetivos en español
 
-<a href="https://www.youtube.com/watch?v=fwxVqndcOaE">Video explicativo</a> sobre el uso de los adjetivos en español/estar/hay <br>
+<a href="https://www.youtube.com/watch?v=fwxVqndcOaE">Video explicativo</a> sobre el uso de los adjetivos en español. <br>
 
 Diese <a href="https://www.enforex.com/spanisch/sprache/adjektive-adjetivos.html">Webseite</a> gibt dir nochmal einen guten Überblick über alle Reglen zum Adjektiv im Spanischen. <br>
 
